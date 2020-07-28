@@ -1,13 +1,7 @@
 # 脑回路联邦群公告
 
 各位，你们好。欢迎来到脑回路联邦Brain Circut Federation （B.C.F）。
-如果你是新来的成员，请按顺序作下面几个简单的步骤：
-1. 阅读完这个群公告
-2. 在群里发送一条“loqwertyuiop”（证明你看到了这里）
-3. 填写[脑回路联邦入群申请表](https://forms.office.com/Pages/ResponsePage.aspx?id=p-xCk2RwIEKsHr5V6uAWsSvTMKHt6J9NiJPsom4cFn1UNEtCWUcySjlUMEtJM0dQS000UTU2TlU5Ny4u)，然后将邀请码以“邀请码：xxxxx”（将xxxxx替换成邀请码）的格式发至群内
-4. 在主席@你说你审核通过之前暂时封住你按耐不住想开始聊天的手和嘴。
 
-如果审核通过，你就可以开始聊天了，不过……
 在开始聊天之前，请遵守以下的联邦规章：
 1. 脱水🚱，即不要发布水帖。在联邦里，请只讨论和脑洞🧠、科技📱等理性方面有关的内容，（感性内容请到班级群里发💁‍♂️）。
 2. 请待人友善😊，不要抬杠吵架🤬。
